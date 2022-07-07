@@ -1,6 +1,7 @@
 ## Welcome to GitHub Pages
 
-
+Gemini  login offers a variety of ways to manage your assets. You can use the web interface or mobile app to track your account activity, transfers, and holdings. You can also set up notifications to stay informed about changes in your account balance or when a transfer is complete. Here are some tips for getting the most out of your Gemini  login account:
+To purchase an asset on its exchange, select Buy/Sell from the menu bar at the top of the screen. Next, you'll need to choose what type of asset you want to buy, which will then present you with various currency pairs that represent it. If you're not sure which one to pick, consult the list of types below:
 <a href="https://uphold-loginus.simplesite.com/">uphold login</a>
 <a href="https://upholdlogno.talentlms.com/">uphold login</a>
 <a href="https://upholdloginq.talentlms.com/">uphold login</a>
